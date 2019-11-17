@@ -1,1 +1,1 @@
-# myPortfolio Now
+My name is Shakur Miro, here is my updated portfolio as I work my way on transitioning from the healthcar field into software. Please be ever so kind and take a look at my projects and responsitories with links provided on the webpage. Feel free to contact me for any need information. 
